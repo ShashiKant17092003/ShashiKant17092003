@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Data Structure And Algorithm**
 
-- 📫 How to reach me **abhik641637@gmail.com**
+- 📫 How to reach me **shashikantsln1793@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
